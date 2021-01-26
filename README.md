@@ -1,8 +1,8 @@
 # **Bilgilendirme**
 
-> **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız V12 Public Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
+> **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız V12 Çekiliş Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
 
-> [Videoya Gitmek İçin Tıkla](https://youtu.be/q5G6xfF82bY) 
+> [Videoya Gitmek İçin Tıkla](https://youtu.be/zzfAezriMIM) 
 
 > [Discord Sunucusuna Katılmak İçin Tıkla](https://discord.gg/axjXvA9cCa)
 
