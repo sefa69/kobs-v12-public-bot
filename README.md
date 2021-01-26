@@ -4,7 +4,7 @@
 
 > [Videoya Gitmek İçin Tıkla](https://youtu.be/q5G6xfF82bY) 
 
->  [Discord Sunucusuna Katılmak İçin Tıkla](https://discord.gg/axjXvA9cCa)
+> [Discord Sunucusuna Katılmak İçin Tıkla](https://discord.gg/axjXvA9cCa)
 
 > 💳▸ Desteklemek için;
 
