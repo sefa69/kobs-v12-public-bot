@@ -2,7 +2,7 @@
 
 > **`Hepinize Merhaba Arkadaşlar Bu Videoda Yeni Hazırladığımız V12 Public Botunu Tanıttım,İyi Seyiler Diliyorum Tekrardan. Bu Tarz Videoların Devamı İçin Videoya Like ve Yorum Atmayı Unutmayın`**
 
-> [Videoya Gitmek İçin Tıkla](https://discord.gg/axjXvA9cCa) 
+> [Videoya Gitmek İçin Tıkla](https://youtu.be/q5G6xfF82bY) 
 
 > [Discord Sunucusuna Katılmak İçin Tıkla](https://discord.gg/axjXvA9cCa)
 
